@@ -1,1 +1,0 @@
-# muenzeinwurfzdkb2c
